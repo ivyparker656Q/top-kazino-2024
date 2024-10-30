@@ -8,31 +8,31 @@
 
 | №  | Название казино | Ссылка                                       | Примечания                                |
 |----|----------------|---------------------------------------------|------------------------------------------|
-| 1  | [Pokerdom](https://brandplay.link/4k77v2yx) | Быстрая регистрация и щедрые бонусы для новых игроков. |
-| 2  | [Riobet](https://brandplay.link/7xBLTPyj) | Привлекательные акции и широкий выбор игр. |
-| 3  | [Gizbo](https://brandplay.link/bprXw4YV) | Удобный интерфейс и множество слотов. |
-| 4  | [LEX](https://brandplay.link/zW4hdDFV) | Казино с быстрыми выплатами и высоким уровнем безопасности. |
-| 5  | [Aurora](https://10trafic-stat2.com/click/668546556bcc6313411604bd/6766/13032/subaccount) | Приветственные бонусы и поддержка различных игровых автоматов. |
-| 6  | [Starda](https://brandplay.link/fB7xwRFL) | Частые акции и интересные предложения для игроков. |
-| 7  | [Kometa](https://brandplay.link/8ZymQJV8) | Высокий рейтинг и положительные отзывы от пользователей. |
-| 8  | [R7](https://brandplay.link/bMd3Yjsw) | Простая регистрация и широкий выбор азартных игр. |
-| 9  | [7K](https://brandplay.link/BvQyFShp) | Приветственные бонусы и возможность бездепозитной игры. |
-| 10 | [Kent](https://brandplay.link/Fv2WP3js) | Доступ к множеству популярных слотов и настольных игр. |
-| 11 | [1Xslots](https://brandplay.link/hSB1khtr) | Широкий выбор игр и доступный интерфейс. |
-| 12 | [Gama](https://brandplay.link/j6NMKsDz) | Программа лояльности и бонусы для новых игроков. |
-| 13 | [Onion](https://brandplay.link/zBGRVpQ9) | Быстрая регистрация и поддержка анонимной игры. |
-| 14 | [Чемпион](https://temon-gter.cfd/go/lRq?p80412p304504pcc44t17455) | Казино с быстрыми выплатами и минимальными требованиями для верификации. |
-| 15 | [Vavada](https://vavadapartner.pro/?promo=ea5c9275-6854-4505-94fc-95ab18221945-linkb2) | Приветственные бонусы и частые турниры для игроков. |
-| 16 | [Friends](https://gofriends.vc/linkb2) | Минимальная регистрация и акции для новых пользователей. |
-| 17 | [1WIN](https://brandplay.link/smXVpBbG) | Приветственные бонусы и поддержка популярного крипто-кошелька. |
-| 18 | [Drip](https://drp-ircp01.com/c07e6a3db) | Быстрая регистрация и широкий выбор игр. |
-| 19 | [JoyCasino](https://rpc30.call2me.pro/?/ru/registration?apkpop=0&partner=p24970p3291217pc98f) | Популярное казино с крупными бонусами и мгновенными выплатами. |
-| 20 | [PlayFortuna](https://fortunapromo.net/alt/playfortuna/registration?0dc4a9362a71feb7e3f165fb8e766f70) | Быстрый вывод и упрощенный процесс для новых игроков. |
-| 21 | [Sykaa](https://s-two-way.com/?source=linkb2&pid=30697) | Приятный интерфейс и минимальные условия для регистрации. |
-| 22 | [Rox](https://rox-pvwfpjgcxe.com/cb1ee18a5) | Казино с крупными бонусами и отсутствием строгой верификации. |
-| 23 | [Fresh](https://fresh-eumwkxwao.com/c3f7b485d) | Программа лояльности и быстрый доступ к играм. |
-| 24 | [Sol](https://sol-mmtdzfbaco.com/cb2415bca) | Современная платформа с возможностью быстрого вывода. |
-| 25 | [BC.game](https://partnerbcgame.com/dcc53d441) | Привлекательные бонусы и поддержка популярных слотов. |
+| 1  | Pokerdom       | [Сайт](https://brandplay.link/4k77v2yx)   | Быстрая регистрация и щедрые бонусы.    |
+| 2  | Riobet         | [Сайт](https://brandplay.link/7xBLTPyj)   | Привлекательные акции для новых игроков.|
+| 3  | Gizbo          | [Сайт](https://brandplay.link/bprXw4YV)   | Удобный интерфейс и множество слотов.   |
+| 4  | LEX            | [Сайт](https://brandplay.link/zW4hdDFV)   | Быстрый вывод средств и высокий уровень безопасности. |
+| 5  | Aurora         | [Сайт](https://10trafic-stat2.com/click/668546556bcc6313411604bd/6766/13032/subaccount) | Приветственные бонусы и поддержка различных игровых автоматов. |
+| 6  | Starda         | [Сайт](https://brandplay.link/fB7xwRFL)   | Частые акции и интересные предложения.   |
+| 7  | Kometa         | [Сайт](https://brandplay.link/8ZymQJV8)   | Высокий рейтинг и положительные отзывы игроков. |
+| 8  | R7             | [Сайт](https://brandplay.link/bMd3Yjsw)   | Простая регистрация и широкий выбор азартных игр. |
+| 9  | 7K             | [Сайт](https://brandplay.link/BvQyFShp)   | Приветственные бонусы и возможность бездепозитной игры. |
+| 10 | Kent           | [Сайт](https://brandplay.link/Fv2WP3js)   | Доступ к множеству популярных слотов и настольных игр. |
+| 11 | 1Xslots        | [Сайт](https://brandplay.link/hSB1khtr)   | Широкий выбор игр и доступный интерфейс. |
+| 12 | Gama           | [Сайт](https://brandplay.link/j6NMKsDz)   | Программа лояльности и бонусы для новых игроков. |
+| 13 | Onion          | [Сайт](https://brandplay.link/zBGRVpQ9)   | Быстрая регистрация и поддержка анонимной игры. |
+| 14 | Чемпион        | [Сайт](https://temon-gter.cfd/go/lRq?p80412p304504pcc44t17455) | Казино с быстрыми выплатами и минимальными требованиями для верификации. |
+| 15 | Vavada         | [Сайт](https://vavadapartner.pro/?promo=ea5c9275-6854-4505-94fc-95ab18221945-linkb2) | Приветственные бонусы и частые турниры для игроков. |
+| 16 | Friends        | [Сайт](https://gofriends.vc/linkb2)       | Минимальная регистрация и акции для новых пользователей. |
+| 17 | 1WIN           | [Сайт](https://brandplay.link/smXVpBbG)   | Приветственные бонусы и поддержка популярного крипто-кошелька. |
+| 18 | Drip           | [Сайт](https://drp-ircp01.com/c07e6a3db)  | Быстрая регистрация и широкий выбор игр. |
+| 19 | JoyCasino      | [Сайт](https://rpc30.call2me.pro/?/ru/registration?apkpop=0&partner=p24970p3291217pc98f) | Популярное казино с крупными бонусами и мгновенными выплатами. |
+| 20 | PlayFortuna    | [Сайт](https://fortunapromo.net/alt/playfortuna/registration?0dc4a9362a71feb7e3f165fb8e766f70) | Быстрый вывод и упрощенный процесс для новых игроков. |
+| 21 | Sykaa          | [Сайт](https://s-two-way.com/?source=linkb2&pid=30697) | Приятный интерфейс и минимальные условия для регистрации. |
+| 22 | Rox            | [Сайт](https://rox-pvwfpjgcxe.com/cb1ee18a5) | Казино с крупными бонусами и отсутствием строгой верификации. |
+| 23 | Fresh          | [Сайт](https://fresh-eumwkxwao.com/c3f7b485d) | Программа лояльности и быстрый доступ к играм. |
+| 24 | Sol            | [Сайт](https://sol-mmtdzfbaco.com/cb2415bca) | Современная платформа с возможностью быстрого вывода. |
+| 25 | BC.game        | [Сайт](https://partnerbcgame.com/dcc53d441) | Привлекательные бонусы и поддержка популярных слотов. |
 
 ---
 
